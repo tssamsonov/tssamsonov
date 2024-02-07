@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning things and to take care of myself, and will carry on!
 - 💞️ I’m looking to collaborate on a python project (not yet decided)
 - 📫 How to reach me: mainly through Telegram @SansFrontieres
-- 😄 Pronouns: he/him/they/them
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I jumped with parachute, rode the rollercoaster and tsunami attractions, but I'm still so afraid of heights
 
